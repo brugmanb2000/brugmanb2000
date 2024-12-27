@@ -6,4 +6,4 @@ While I haven't found a facet of software engineering I haven't enjoyed yet, my 
 ## Contact Me:
 
 Phone: 206-290-0991
-Email: brugmanb2000@gmail.com
+Email: brandonjbrugman@gmail.com
